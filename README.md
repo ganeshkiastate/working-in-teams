@@ -1,4 +1,4 @@
 # working-in-teams
 tips for working in teams
 
-My tips fo rworking in teams (listed below)
+My tips for working in teams (listed below)
